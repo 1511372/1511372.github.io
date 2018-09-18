@@ -1,8 +1,2 @@
-Chúc mừng sinh nhật
-1 
-2
-3
-4
-5
-6sv  dshvbsdivsdlv
-7
+Welcome to you ! <3 
+This is website of Tong Tat Hung. I'm updating website, see you soon !
